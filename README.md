@@ -39,7 +39,7 @@ Lack of abiity to node happens as enrgy from content sources compounds as user f
 Thought sequence anticipation to understand how applicable concepts such as confusion are to be avoided or cleared up to progress network sequences through pace of intersection or encounter.
 ie: person engages in network intersection and explains project progression. After intersection occurance how long before all who were in participation retrieve, add progression or attempt to clarify topic of discussion. 
 
-Time trailing after network intersection "scoping" allows for loaction of in-stance where m-oral is to be spoken to create verbal description of concept of discussion
+Time trailing after network intersection creates "scoping" which allows for loaction of in-stance where m-oral is to be spoken to create verbal description of concept of discussion
 
 Applied science hardware is to identify the population parameters which create stagnant conditions from ancestors to descendants.
     ie: what objective values create fixation for members of a population after increased reliance on a resource or process.
@@ -61,9 +61,9 @@ Applied science solution is to increase awareness of when social sentiment such 
 
 Applied science solution is to provide on going graphical interpretation of how a person is in response reaction to their subscribed energy symbols such as name, noun and brands.
 
-Behavior overview: As a person responds to subscribed and given symbols, his or her defense mechanism is attached to labels of modes as a result of interaction in electromagnetic fields. 
+Behavior overview: As a person responds to subscribed and given symbols, his or her defense mechanisms become attached to labels of modes as a result of interaction in electromagnetic fields. 
 
 Applied science solution is to provide graphical interpretation of a persons "Karma" choice control as it is used as a plus minus or pos neg quantum.
 
-Applied science solution is to regulate irrational emotional use before it becomes disordered by tracking the number of instances a person uses emotional response without reason.
+Applied science solution is to regulate irrational emotional use before it becomes disordered by tracking the number of instances in which a person uses emotional response without reason.
 
